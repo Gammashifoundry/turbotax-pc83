@@ -1,4 +1,4 @@
-# 
+# custom QuickBooks para PC plugins é o melhor QuickBooks para PC plugins com rastros de auditoria e acesso movel. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
